@@ -1,0 +1,5 @@
+- Hi, I’m martin
+- I’m interested in basketball, swimming, video games, and coding
+- I’m currently learning coding
+- How to reach me martintang410@gmail.com
+- Fun fact: I am a stickman
